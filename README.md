@@ -34,3 +34,13 @@ Random stuff about me I guess
 -I also like LotR and Harry Potter series
 
 -While I may have said in the past that Neil deGrasse Tyson is my role model I feel like I've now been more aligned with Elon Musk
+
+-My favorite aircraft is the Boeing 777-9X (although it'd be tied with the Lockheed Martin QSTA)
+
+-I wish that the Lockheed Martin L1011 Tristar wasn't a failure; that the Boeing 2707 SST would have actually been made, and that the Avro Arrow was actually made
+
+-Opportunity is my favorite rover and it will always be remembered by me
+
+-Voyager 1 is my spacecraft
+
+-Fear my Rover Army (and my Boeing 777-9X bomber edition air force)
