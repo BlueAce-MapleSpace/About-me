@@ -1,7 +1,7 @@
 # About me
 Random stuff about me I guess
 
--I'm SpaceAce
+-I'm MapleSpace
 
 -I am a gamer, proven by the fact that I'm coleader of my school's gaming society
 
